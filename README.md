@@ -1,1 +1,0 @@
-# vakyk-zurnuii
